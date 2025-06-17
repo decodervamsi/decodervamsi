@@ -19,7 +19,7 @@ From coding to content, design to development — I believe in doing it all with
 - 🎬 YouTuber (faceless + voiceover channels)  
 - 🖌️ Web & App Design (UI/UX)  
 - ✂️ Video Editing (Reels, YouTube, Shorts)  
-- ✍️ Script Writing (YT, storytelling, psychology, documentaries)
+- ✍️ Script Writing (YT, storytelling, documentaries)
 
 ---
 
